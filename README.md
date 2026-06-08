@@ -34,7 +34,7 @@ Dsmp Fandom, yandere sim, Toxic MHA fans, Forsaken
 
 ⟡ - Fandom INTS - ⊹ 
 
-Life Series, LPS, MLP, HermitCraft, Empires SMP, MHA, MHA Vigilantes, Monster High, Misadventures SMP, K-Pop Demon Hunters, Yona of the dawn, Vampires SMP!
+Life Series, LPS, MLP, HermitCraft, Empires SMP, MHA, MHA Vigilantes, Monster High, Misadventures SMP, K-Pop Demon Hunters, Yona of the dawn!
 
 
 
